@@ -1,0 +1,2 @@
+# Ngewe
+Jangan lupa ngewe
